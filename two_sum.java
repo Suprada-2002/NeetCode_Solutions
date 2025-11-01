@@ -4,9 +4,9 @@ class TwoSum{
   extxt
   text
   textxt
-  textex
-  extext
+  texte
 }
+
 
 
 
