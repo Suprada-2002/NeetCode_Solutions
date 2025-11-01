@@ -1,1 +1,2 @@
-public statuc void main
+public static void main()
+
