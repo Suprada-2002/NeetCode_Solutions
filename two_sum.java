@@ -1,2 +1,4 @@
-public static void main()
+class TwoSum{
+  public static void main()
+
 
