@@ -1,0 +1,1 @@
+public statuc void main
