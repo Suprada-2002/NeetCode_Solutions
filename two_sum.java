@@ -4,10 +4,6 @@
   text
   text
 
-yext
-text
-
-
 
 
 
