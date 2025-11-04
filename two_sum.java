@@ -8,6 +8,7 @@ text
     text
     textxt
     textx
+    texte
 text
   textxt
     text
@@ -24,6 +25,7 @@ text
     text
 -- texte
   extext
+
 
 
 
