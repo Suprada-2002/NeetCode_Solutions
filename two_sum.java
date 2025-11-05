@@ -23,8 +23,6 @@ text
     textext
     textext
     text
--- texte
-  extext
 
 
 
