@@ -3,3 +3,4 @@ binary serach
   textex
   textex
 textex
+  textex
