@@ -1,3 +1,6 @@
+// Only works on Sorted Arrays
+// Time Complexity - O(log n)
+
 class Binary_Search  {
 
   public static int seach(int[] arr, int target)  {
