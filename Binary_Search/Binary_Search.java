@@ -1,5 +1,8 @@
 class Binary_Search  {
+  
   public static void main() {
-      Syste.out.println(search(arr, target));
+    int[] arr = {};
+    Arrays.sorted(arr);
+      System.out.println(search(arr, target));
   }
 }
