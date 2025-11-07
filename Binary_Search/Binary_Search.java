@@ -4,7 +4,7 @@ class Binary_Search  {
     int first = 0, last = arr.length-1;
 
     while(first<=last){
-
+        int mid = (first+last)/2;
     }
   }
   
