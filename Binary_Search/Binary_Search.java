@@ -1,1 +1,3 @@
-ert
+class Binary_Search{
+  
+}
