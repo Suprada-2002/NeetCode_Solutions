@@ -2,6 +2,10 @@ class Binary_Search  {
 
   public static int seach(int[] arr, int target)  {
     int first = 0, last = arr.length-1;
+
+    while(first<=last){
+
+    }
   }
   
   public static void main() {
