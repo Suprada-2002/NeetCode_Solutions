@@ -1,3 +1,5 @@
+// time complezity: O(log n)
+
 class Solution {
     public boolean containsDuplicate(int[] nums) {
         if(nums.length == 1) return false;
