@@ -5,5 +5,4 @@ textxxt
     textext
     textxt
     textext
-    text
 
