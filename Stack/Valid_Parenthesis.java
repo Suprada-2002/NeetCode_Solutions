@@ -8,4 +8,3 @@ textxxt
     text
     textext
     textext
-    text
