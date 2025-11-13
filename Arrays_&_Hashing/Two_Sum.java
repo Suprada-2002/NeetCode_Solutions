@@ -10,4 +10,3 @@ trwirwer
   text
   text
   extext
-  text
