@@ -12,5 +12,3 @@ trwirwer
   extext
   text
   text
-    extext
-  textex
