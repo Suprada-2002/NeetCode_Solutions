@@ -16,4 +16,3 @@ trwirwer
   textex
     textxe
   textxet
-  textx
