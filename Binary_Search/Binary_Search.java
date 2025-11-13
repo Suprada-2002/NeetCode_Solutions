@@ -2,8 +2,6 @@
 // Time Complexity - O(log n)
 
 text
-  textx
-
 class Binary_Search  {
 
   public static int seach(int[] arr, int target)  {
