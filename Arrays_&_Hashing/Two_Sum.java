@@ -8,4 +8,3 @@ trwirwer
   text
   text
   text
-  text
