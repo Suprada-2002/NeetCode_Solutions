@@ -4,7 +4,6 @@ text
     txt
     text
     text
-    tezr
 textext
     textetx
     textext
@@ -17,6 +16,7 @@ textext
 textextxe
 texttex
 textxtext
+
 
 
 
