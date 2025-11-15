@@ -3,8 +3,6 @@ text
   text
     txt
     text
-    text
-textext
     textetx
     textext
 textext
@@ -16,6 +14,7 @@ textext
 textextxe
 texttex
 textxtext
+
 
 
 
