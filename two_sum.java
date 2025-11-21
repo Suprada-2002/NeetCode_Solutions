@@ -5,6 +5,8 @@ textext
   textex
   textextx
   textextex
+  textext
+
 
 
 
