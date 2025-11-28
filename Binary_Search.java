@@ -5,4 +5,3 @@ binary serach
 textex
   textex
   text
-  textext
