@@ -9,5 +9,3 @@ textex
   textext
   text
   textext
-  textext
-  textext
