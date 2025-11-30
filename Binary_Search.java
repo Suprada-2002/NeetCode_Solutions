@@ -1,3 +1,2 @@
 binary serach
   textx
-  textetx
