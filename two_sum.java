@@ -8,7 +8,6 @@ textexet
   textetx
   textext
   texttex
-  textextx
 
 
 
