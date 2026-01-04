@@ -5,7 +5,8 @@ textextxe
 textextetxt
 textextex
 tetxetext
-textextx
+textextx textextxe
+
 
 
 
