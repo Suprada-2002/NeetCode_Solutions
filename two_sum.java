@@ -2,7 +2,7 @@
 https://www.wallofportfolios.in/portfolios/mikael-persson/
 
 Appleser climatedfrt opljhyuipl
-tyhgklll nmbghjkilop mnghkkio mklnjkio
+tyhgklll mnghkkio mklnjkio
 tghnbhj
 oyyyui
 oplkkk
@@ -11,6 +11,7 @@ hjlmnbh
 nhfgvvvv
 plkjkllll
 uhjklkop
+
 
 
 
