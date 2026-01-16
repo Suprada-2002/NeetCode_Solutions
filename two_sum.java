@@ -1,7 +1,6 @@
 
 https://www.wallofportfolios.in/portfolios/mikael-persson/
 
-Appleser
 tyhgklll
 tghnbhj
 oplkkk
@@ -9,6 +8,7 @@ olkklll
 nhfgvvvv
 plkjkllll
 uhjklkop
+
 
 
 
