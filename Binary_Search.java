@@ -1,5 +1,5 @@
 binary serach
-textextex textextt
+textextex textextt textext
 textextex textext
 textextxex
 textextx
