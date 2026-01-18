@@ -1,4 +1,4 @@
-binary serach ioklppp kjlooo
+binary serach ioklppp
 textextex textextt uiopllll
 textext txfvgghh kjmoooo
 textextxex etextext textextex
