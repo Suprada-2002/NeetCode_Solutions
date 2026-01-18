@@ -6,10 +6,10 @@ tghnbhj oplkkkk
 oplkkk opljjj
 olkklll
 kjhbcfg
-jhgfdertaq
 hjknmfrtyh
 lredfghyu
 ujhklll
+
 
 
 
