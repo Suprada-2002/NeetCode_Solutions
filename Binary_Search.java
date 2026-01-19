@@ -1,5 +1,5 @@
 binary serach ioklppp
-textextex textextt uiopllll
+textextex textextt
 textext 
 textextxex etextext
 textextx
