@@ -1,6 +1,6 @@
 binary serach ioklppp
 textextex textextt uiopllll
-textext txfvgghh kjmoooo
+textext kjmoooo
 textextxex etextext textextex
 textextx textexte yuiklloopp
 tetxtetxtex mnjklllm
