@@ -1,4 +1,4 @@
-binary serach ioklppp
+binary serach
 textextex textextt
 textext 
 textextxex etextext
