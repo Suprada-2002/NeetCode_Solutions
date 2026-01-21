@@ -7,9 +7,10 @@ oplkkk opljjj
 klloordf
 kjhbcfg kjlllooooo
 hjknmfrtyh
-lredfghyu ioklloo
+ioklloo
 ujhklll tesdfghhjk
 kmnjjjioo
+
 
 
 
