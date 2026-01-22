@@ -2,7 +2,7 @@ binary serach waqsdfrt uitrfd
 textextex esrdf tghyjkk
 uijklllmnopp uijkoplhnj fcfvgh
 textext oilkjjj redfggh
-uiklooo  lopjkhddddd uiklopp
+uiklooo  uiklopp
 hgbcsdert ioplkjn asdfrtgg
 plokjhfe koncdfgh uijfgg
 kjmnhyrwqscdz hjklmm
