@@ -1,4 +1,4 @@
-binary serach waqsdfrt uitrfd
+binary waqsdfrt uitrfd
 textextex esrdf tghyjkk
 uijklllmnopp uijkoplhnj fcfvgh
 textext oilkjjj redfggh
