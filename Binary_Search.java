@@ -4,6 +4,6 @@ uijklllmnopp uijkoplhnj fcfvgh
 textext oilkjjj redfggh
 uiklooo  uiklopp
 hgbcsdert ioplkjn asdfrtgg
-plokjhfe koncdfgh uijfgg
+koncdfgh uijfgg
 kjmnhyrwqscdz hjklmm
 jklmnnb kmlqwesdfvggg
