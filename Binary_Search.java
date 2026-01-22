@@ -4,5 +4,5 @@ uiokm
 uiklooo 
 ioplkjn
 koncdfgh uijfgg
-kjmnhyrwqscdz hjklmm
+hjklmm
 jklmnnb klmnoooi
