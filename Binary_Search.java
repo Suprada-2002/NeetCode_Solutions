@@ -1,4 +1,4 @@
-binary waqsdfrt uitrfd
+binary waqsdfrt
 textextex tghyjkk
 textext uiokm
 uiklooo  uiklopp
