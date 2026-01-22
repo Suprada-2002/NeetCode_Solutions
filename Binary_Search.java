@@ -1,5 +1,5 @@
 binary waqsdfrt uitrfd
-textextex tghyjkk jhnbvvv
+textextex tghyjkk
 textext oilkjjj uiokm
 uiklooo  uiklopp
 hgbcsdert ioplkjn
