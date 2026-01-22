@@ -2,7 +2,7 @@ binary
 textextex tghyjkk
 uiokm
 uiklooo 
-hgbcsdert ioplkjn
+ioplkjn
 koncdfgh uijfgg
 kjmnhyrwqscdz hjklmm
 jklmnnb klmnoooi
