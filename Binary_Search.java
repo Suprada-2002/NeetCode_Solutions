@@ -1,6 +1,6 @@
 binary waqsdfrt uitrfd
 textextex esrdf tghyjkk
-uijklllmnopp fcfvgh
+fcfvgh
 textext oilkjjj
 uiklooo  uiklopp
 hgbcsdert ioplkjn
