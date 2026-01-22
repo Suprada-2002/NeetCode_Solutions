@@ -1,7 +1,7 @@
 binary waqsdfrt
 textextex tghyjkk
 textext uiokm
-uiklooo  uiklopp
+uiklooo 
 hgbcsdert ioplkjn
 koncdfgh uijfgg
 kjmnhyrwqscdz hjklmm
