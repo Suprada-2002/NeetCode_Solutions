@@ -10,7 +10,6 @@ itrfghyjukpolkjhyu
 oilgfrtgyhu zasxdx
 powsdfrt bcdfggg
 plkjuiolp nmsdfgh
-jhnmkll
 
 
 
