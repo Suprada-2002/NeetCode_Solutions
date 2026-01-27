@@ -7,7 +7,6 @@ oplkkk opljjj asddddd
 yhgfgklooop
 kjnmmhytggfftt
 polkmmjhhgbbytt
-yrwwssqqaww
 
 
 
