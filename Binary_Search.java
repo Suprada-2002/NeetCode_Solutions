@@ -1,6 +1,6 @@
 binary
 textextex tghyjkk
-uiokm
+uiokm ioplk
 uiklooo jklmniop
 ioplkjn erfdghtyuu
 koncdfgh uijfgg
