@@ -1,7 +1,7 @@
 binary search
 textextex tghyjkk
 uiokm ioplk tyghjfl
-uiklooo jklmniop uyhgtrr
+uiklooo uyhgtrr
 ioplkjn
 koncdfgh uijfgg uijhkllp
 hjklmm hgbvwertghyujiop
