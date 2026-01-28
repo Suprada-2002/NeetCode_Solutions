@@ -1,4 +1,4 @@
-binary search uyhjkll
+binary search
 textextex tghyjkk
 uiokm ioplk tyghjfl
 uiklooo jklmniop uyhgtrr
