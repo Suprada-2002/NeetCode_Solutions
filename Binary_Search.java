@@ -1,5 +1,5 @@
 binary search
-textextex tghyjkk
+tghyjkk
 uiokm ioplk tyghjfl
 uiklooo uyhgtrr
 ioplkjn
