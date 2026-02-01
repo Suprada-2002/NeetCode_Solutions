@@ -1,7 +1,7 @@
 binary search
 tghyjkk
 uiokm tyghjfl
-uiklooo uyhgtrr
+uyhgtrr
 ioplkjn
 koncdfgh
 hjklmm tghyujiop
