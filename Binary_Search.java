@@ -1,6 +1,6 @@
 binary search
 tghyjkk
-uiokm ioplk tyghjfl
+uiokm tyghjfl
 uiklooo uyhgtrr
 ioplkjn
 koncdfgh
