@@ -3,6 +3,6 @@ textextex tghyjkk
 uiokm ioplk tyghjfl
 uiklooo uyhgtrr
 ioplkjn
-koncdfgh uijhkllp
+koncdfgh
 hjklmm tghyujiop
 jklmnnb 
