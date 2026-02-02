@@ -2,10 +2,11 @@
 https://www.wallofportfolios.in/portfolios/mikael-persson/
 
 tyhgklll iokloll rtghtyy
-iokjjjjj iokloopo jhfewfgy
+iokloopo jhfewfgy
 oplkkk rtggtyh
 olkujjj trfgghhh
 lkjuuio
+
 
 
 
