@@ -1,4 +1,4 @@
 binary searchiokkkkk yghfccc
-ioplkjn iukjknmbhg kljmnhhh
+iukjknmbhg kljmnhhh
 koncdfgh rtghjjkl uijkkkk nmjkll
 hjklmm oiklmnqa wedfghh erfghyu
