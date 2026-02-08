@@ -3,9 +3,10 @@ https://www.wallofportfolios.in/portfolios/mikael-persson/
 
 iokloll oilkkjmk
 iokloopo oplkmm iopkhgfcd
-oplkkk rtggtyh ytgvcdfx trfgcxx
+oplkkk rtggtyh trfgcxx
 olkujjj ioklmjjjj tghjbnhh
 lkjuuio qasedrftt uytgjjkk
+
 
 
 
