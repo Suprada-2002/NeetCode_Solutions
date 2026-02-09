@@ -1,4 +1,3 @@
-binary yghfcc
-kljmnhhh 
+binary yghfcc 
 koncdfgh trfdeswaa
 hjklmm oiklmnqa  erfghyu
