@@ -1,4 +1,4 @@
 binary yghfcc
 kljmnhhh 
-koncdfgh uijkkkk trfdeswaa
+koncdfgh trfdeswaa
 hjklmm oiklmnqa wedfghh erfghyu qasedxxcc
