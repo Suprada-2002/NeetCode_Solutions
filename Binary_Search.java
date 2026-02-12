@@ -1,3 +1,3 @@
 binary uijhnkloppp uihjnmkk utrdsee iytfgg
-koncdfgh rtfghyjui tfderr esaqwzzz
+koncdfgh tfderr esaqwzzz
 hjklmm yuhjnbggfcv qawsedr
