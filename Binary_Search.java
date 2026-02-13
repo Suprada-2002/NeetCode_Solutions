@@ -1,3 +1,3 @@
 binary utrdsee iytfgg  ijnbhfc ytfgccc
-tfderr yghvfgg uyhgvvvf ytfgrrrr
+tfderr uyhgvvvf ytfgrrrr
 hjklmm uytrdsww utrdfffg
