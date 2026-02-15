@@ -1,6 +1,6 @@
 binary utrdsee iytfgg  ijnbhfc ytfgccc
 tfderr uyhgvvvf ytfgrrrr
 hjklmm uytrdsww utrdfffg
-  oijkhhjjk tfrdesss qawsedffg
+  oijkhhjjk qawsedffg
 tfgcvvv yghfffcdd lmqawww
   lkioooppp injklmnccd
