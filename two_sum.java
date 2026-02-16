@@ -6,7 +6,8 @@ polkiii iujkkk iokkkk kmnjcfderfff
 kljuuuu kjnbhgss
 kjjjjj klmmm
 ghvvhbhhbhb jnmklpooo
-lmjjnnn tfeddd okijhttgg
+lmjjnnn tfeddd
+
 
 
 
