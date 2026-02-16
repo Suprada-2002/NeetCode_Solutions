@@ -5,8 +5,9 @@ wsedsf oplkmm lkmmmm
 polkiii iujkkk iokkkk kmnjcfderfff
 kljuuuu kjnbhgss
 kjjjjj klmmm
-ghvvhbhhbhb qawsedrff jnmklpooo
+ghvvhbhhbhb jnmklpooo
 lmjjnnn tfeddd okijhttgg
+
 
 
 
