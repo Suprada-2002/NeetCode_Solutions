@@ -2,10 +2,11 @@
 https://www.wallofportfolios.in/portfolios/mikael-persson/
 
 wsedsf oplkmm lkmmmm
-polkiii iujkkk iokkkk
+polkiii iokkkk
 kljuuuu
 kjjjjj klmmm jnmklpooo
 lmjjnnn tfeddd
+
 
 
 
