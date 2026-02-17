@@ -2,7 +2,7 @@
 https://www.wallofportfolios.in/portfolios/mikael-persson/
 
 wsedsf oplkmm lkmmmm
-polkiii iokkkk
+polkiii iokkkk uijjj
 kljuuuu uijjhhhh
 kjjjjj klmmm jnmklpooo
 lmjjnnn tfeddd uiopllll
@@ -11,6 +11,7 @@ frasweeroikjjj iopkkk
 qawszxdderft opweqwe
 oikjjjkk iurfggg
 oqaswee gfhjdkkk
+
 
 
 
