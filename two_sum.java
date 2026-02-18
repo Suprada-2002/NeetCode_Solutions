@@ -1,12 +1,13 @@
 
 https://www.wallofportfolios.in/portfolios/mikael-persson/
 
-polkiii iokkkk uijjj
+iokkkk uijjj
 kjjjjj  tfeddd
 hfgdrtegtt werfftt iopkkk
 qawszxdderft opweqwe iurfggg
 oqaswee gfhjdkkk
 abnhghgh ioplllkk
+
 
 
 
