@@ -6,10 +6,10 @@ kljuuuu uijjhhhh
 kjjjjj klmmm tfeddd
 hfgdrtegtt werfftt
 frasweeroikjjj iopkkk
-qawszxdderft opweqwe
-oikjjjkk iurfggg
+qawszxdderft opweqwe iurfggg
 oqaswee gfhjdkkk
 abnhghgh ioplllkk
+
 
 
 
